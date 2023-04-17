@@ -1,5 +1,5 @@
 I’m Merrick Johnston
 
-Im a CS student a Pitt
+Technologist at Black Cape.
 
 Im enjoy tabletop gaming, building PCs
